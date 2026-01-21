@@ -1,4 +1,4 @@
-##  <img width="20" height="35" alt="image" src="https://github.com/user-attachments/assets/6c710e4e-2835-41ae-b0ad-9119ba3fd8cc" />ㅤ ㅤ " i HATE [FANWARS](https://github.com/tw0fans) ! " 
+##  <img width="20" height="35" alt="image" src="https://github.com/user-attachments/assets/6c710e4e-2835-41ae-b0ad-9119ba3fd8cc" /> ㅤ    ㅤ  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=IBM+Plex+Mono&duration=6000&pause=1000&color=285ad0&vCenter=true&width=500&lines=I+HATE+FANWARS!!!" alt="Typing SVG" /></a> 
   
 ㅤ  ㅤ <img width="20" height="25" alt="image" src="https://github.com/user-attachments/assets/81f1abe3-49a8-4c40-bcd7-08a29a06c690" />ㅤ ㅤㅤaristo  ㅤㅤㅤor ㅤㅤㅤ*c*hlorine  !
   
@@ -8,3 +8,4 @@
   ㅤㅤㅤㅤㅤ[carrd](<https://fannyblades.carrd.co>)
 
 <img width="404" height="120.5" alt="image" src="https://github.com/user-attachments/assets/1eef432f-dabd-449f-9c48-36b01d29c897" />
+<img width="50" height="20" alt="hatewatchers" src="https://komarev.com/ghpvc/?username=tw0fans" />
