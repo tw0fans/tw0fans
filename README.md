@@ -29,9 +29,9 @@
 
 ㅤ <sup>mostly uses these ponies below ↓ or claims!</sup>
 
-![pony-town-- fanny 😡 bfdi-kiss-lift-hoof-blinking-name-padded-4x](https://github.com/user-attachments/assets/e7a64904-f040-4018-9d15-0ed715915b64) ![pony-town-- fan 💥 ii-kiss-lift-hoof-blinking-name-padded-4x](https://github.com/user-attachments/assets/954a4b91-72a9-408a-b141-f524329652b2) 
+![pony-town-- fanny 😡 bfdi-kiss-lift-hoof-blinking-name-padded-4x](https://github.com/user-attachments/assets/e7a64904-f040-4018-9d15-0ed715915b64) ![pony-town-- fan 💥 ii-kiss-lift-hoof-blinking-name-padded-4x](https://github.com/user-attachments/assets/954a4b91-72a9-408a-b141-f524329652b2) ![pony-town-- two 🐛 tpot-head-shake-blinking-name-padded-4x](https://github.com/user-attachments/assets/4d7a296e-a6d4-441b-836d-d2f7142b8ab1) ![pony-town-- one 🌙 tpot-silly-wink-blinking-name-padded-ponyplush-4x](https://github.com/user-attachments/assets/c6ed4cbf-b250-4de1-9166-872bf7702295)
 
----
+
 
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31c6bqdwqeekiki33ftsvh7wulyy&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&profanity=true&bar_color=285ad0&bar_color_cover=false">
