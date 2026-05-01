@@ -19,7 +19,7 @@
 ---
 <img width="45" height="45" alt=". fanny 😡 bfdi" src="https://github.com/user-attachments/assets/e019776f-42e6-4f14-b1f4-19a8e66a48d0" />ㅤ <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=IBM+Plex+Mono&duration=6000&pause=1000&color=285ad0&vCenter=true&width=600&lines=Pony+Town+info:" alt="Typing SVG" /></a>
 
-ㅤ <sup>mostly @ docks, either at the benches w/ <strong>ome</strong> or just chilling</sup>
+ㅤ <sup>mostly @ docks, either at the benches or just chilling</sup>
 
 ㅤ <sup>don't completely cover me, i will have a hard time trying to find myself</sup>
 
@@ -27,7 +27,7 @@
 
 ㅤ <sup>do NOT copy my skins unless i give you permission and do NOT whisp me if you're not joining when i recruit (unless emergencies)</sup>
 
-ㅤ <sup>mostly uses these ponies below ↓ or claims!</sup>
+ㅤ <sup>mostly uses these ponies below ↓</sup>
 
 ![pony-town-- fanny 😡 bfdi-kiss-lift-hoof-blinking-name-padded-4x](https://github.com/user-attachments/assets/e7a64904-f040-4018-9d15-0ed715915b64) ![pony-town-- fan 💥 ii-kiss-lift-hoof-blinking-name-padded-4x](https://github.com/user-attachments/assets/954a4b91-72a9-408a-b141-f524329652b2) 
 
