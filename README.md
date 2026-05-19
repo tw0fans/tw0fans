@@ -12,9 +12,9 @@
   ㅤ ㅤm*i*norㅤㅤshe **/** anyㅤ; <img width="25" height="30" alt="image" src="https://github.com/user-attachments/assets/c6ceb0ad-09ef-4d76-aaef-ce96113a675f" />  eng / fil . *GMT +8* 
 
  ㅤ   ㅤ  ㅤ[atabook](<https://aristophonic.atabook.org>) ㅤ ㅤ ㅤㅤ<img width="25" height="30" alt="image" src="https://github.com/user-attachments/assets/797cbb94-99b5-4e7c-9fd5-a276eb612e0c" />
-  ㅤㅤㅤㅤㅤ[carrd](<https://fannyblades.carrd.co>)
+  ㅤㅤㅤㅤㅤ[rentry](<https://rentry.co/twofans>)
 
-<img width="404" height="120.5" alt="image" src="https://github.com/user-attachments/assets/1eef432f-dabd-449f-9c48-36b01d29c897" />
+<img width="404" height="25" alt="image" src="https://file.garden/agrWE7IE50dldlVy/Untitled71_20260518183339.png" />
 
 ---
 <img width="45" height="45" alt=". fanny 😡 bfdi" src="https://github.com/user-attachments/assets/e019776f-42e6-4f14-b1f4-19a8e66a48d0" />ㅤ <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=IBM+Plex+Mono&duration=6000&pause=1000&color=285ad0&vCenter=true&width=600&lines=Pony+Town+info:" alt="Typing SVG" /></a>
