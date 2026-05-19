@@ -31,8 +31,6 @@
 
 ![pony-town-- fanny 😡 bfdi-kiss-lift-hoof-blinking-name-padded-4x](https://github.com/user-attachments/assets/e7a64904-f040-4018-9d15-0ed715915b64) ![pony-town-- fan 💥 ii-kiss-lift-hoof-blinking-name-padded-4x](https://github.com/user-attachments/assets/954a4b91-72a9-408a-b141-f524329652b2) 
 
-![pony-town-- two 🐛 tpot-head-shake-blinking-name-padded-4x](https://github.com/user-attachments/assets/4d7a296e-a6d4-441b-836d-d2f7142b8ab1) ![pony-town-- one 🌙 tpot-silly-wink-blinking-name-padded-ponyplush-4x](https://github.com/user-attachments/assets/c6ed4cbf-b250-4de1-9166-872bf7702295)
-
 ---
 
   <a href="https://github.com/kittinan/spotify-github-profile">
